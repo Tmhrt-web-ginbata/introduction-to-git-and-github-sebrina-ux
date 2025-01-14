@@ -1,6 +1,6 @@
 # About Me
 
-Hi! My name is [Your Name], and here’s a little bit about me:
+Hi! My name is [sebrina], and here’s a little bit about me:
 
 - **What am I interested in learning?**  
   I’m interested in learning art and various aspects of life
